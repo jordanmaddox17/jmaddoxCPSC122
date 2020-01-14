@@ -1,1 +1,1 @@
-# jmaddoxCPSC122
+# Jordan Maddox
